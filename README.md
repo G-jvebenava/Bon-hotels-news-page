@@ -1,0 +1,1 @@
+# Bon-hotels-news-page
